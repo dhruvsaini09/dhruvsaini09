@@ -27,5 +27,5 @@ I'm a developer focused on building web applications and strengthening my proble
 
 ## 📫 Connect With Me
 
-- LinkedIn — Coming soon
+- LinkedIn — https://www.linkedin.com/in/dhruv-saini-8a3810339/
 - Portfolio — Coming soon
